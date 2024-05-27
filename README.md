@@ -1,0 +1,1 @@
+# Salesforce-Marketing-Cloud-Consultant-Update-Exam-2024-Practice-Questions
